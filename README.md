@@ -1,0 +1,3 @@
+Just DynTheHy.....
+
+Be patient I will explain you soon, that's very waouhhh, from Arduino code to R programming, to some engineering cocepts etc ,
